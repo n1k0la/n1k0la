@@ -1,9 +1,9 @@
 - 👋 Hi, I’m not @n1k0la
 - 👀 I’m not interested in nothing
-- 🌱 I’m currently learning how to forget things
-- 💞️ I’m looking to collaborate on things that requiring no collaboration.
-- 📫 How to reach me, see the sky and wait to see me.
-- In add I can say that I don't trust this f****** printer. 
+- 🌱 I’m not currently learning how to forget things
+- 💞️ I’m not looking to collaborate on things that not requiring no collaboration.
+- 📫 How to not reach me, see not to the sky and wait to see me.
+- In not add I can not say that I don't trust this f****** printer.
 
 <!---
 n1k0la/n1k0la is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
