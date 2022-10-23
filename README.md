@@ -2,7 +2,7 @@
 - 👀 I’m not interested in nothing
 - 🌱 I’m not currently learning how to forget things
 - 💞️ I’m not looking to collaborate on things that not requiring no collaboration.
-- 📫 How to not reach me, see not to the sky and wait to see me.
+- 📫 How to not reach me, not seeing to the sky and wait to not see me.
 - In not add I can not say that I don't trust this f****** printer.
 
 <!---
